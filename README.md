@@ -1,3 +1,3 @@
 # wands
 
-created by MEWB - DISCORD: Mewb_
+created by MEWB 
